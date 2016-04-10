@@ -4,7 +4,7 @@
 
 Hay diez cosas que posiblemente no sepas sobre Islandia. Igual más, pero vamos a quedarnos con estas diez.
 
-* [Islandia](https://es.wikipedia.org/wiki/Islandia) es un país grande con una población pequeña, de unos 330 mil habitantes en 2015. Si fuera una *ciudad* española, estaria entre [Alicante y Córdoba](https://es.wikipedia.org/wiki/Anexo:Municipios_de_Espa%C3%B1a_por_poblaci%C3%B3n), y sería la duodécima ciudad de España.
+* [Islandia](https://es.wikipedia.org/wiki/Islandia) es un país grande con una población pequeña, de unos 330 mil habitantes en 2015. Si fuera una *ciudad* española, estaría entre [Alicante y Córdoba](https://es.wikipedia.org/wiki/Anexo:Municipios_de_Espa%C3%B1a_por_poblaci%C3%B3n), y sería la duodécima ciudad de España.
 * La tercera parte de los habitantes viven en la capital, [Reikiavik](https://es.wikipedia.org/wiki/Reikiavik). Si fuera una ciudad española, estaría entre Cádiz y Mataró, es decir, menos habitantes que Alcorcón, Getafe o Parla.
 * Sin embargo, por aquello de los fiordos, tiene más de la mitad de
   los kilómetros de costa que tiene España. Afortunadamente, el clima
@@ -36,8 +36,7 @@ Hay diez cosas que posiblemente no sepas sobre Islandia. Igual más, pero vamos 
   "¿Va a llover?" siempre es "sí". 
 
 * El alcohol es un monopolio del estado. No porque se lo quieran
-  ventilar todo, sino porque para comprarlo tienes que ir a una [tienda
-  específica](http://www.vinbudin.is/), que abre y cierra a horas
+  ventilar todo, sino porque para comprarlo tienes que ir a una [tienda específica](http://www.vinbudin.is/), que abre y cierra a horas
   específicas. El botellón espontáneo, una imposibilidad. No sólo por
   el clima. Y eso sin empezar a mencionar los precios. Lo único que puedes comprar en supermercados son cervezas de baja graduación, sidras, Shandys y cosas por el estilo.
 
@@ -74,6 +73,18 @@ muchos de los islandeses están repartidos por ciudades de Alicante,
 incluyendo el ínclito Benidorm
 
 >que, no hace falta decirlo, en verano tiene más habitantes que
->Reikiavik.
+>Reikiavik
+
+Allí, precisamente en Benidorm, es donde está
+[uno de los 9 consulados españoles de Islandia](http://www.embassypages.com/missions/embassy5625/). Teniendo
+en cuenta que Islandia sólo tiene 234 consulados, hay muchos más
+consulados islandeses en España que en África. Lo que explica que los
+islandeses conozcan mucho mejor nuestro país que nosotros el suyo.
+
+>Y, si me apuras, que el nuestro. Porque no hay más que tener que
+>pelearse con una inmobiliaria en Levante y asistir a un par de
+>reuniones de la comunidad de la urba para que te hagas una idea
+>bastante precisa del país y de todo lo que de bueno y malo contiene. 
+
 
 
