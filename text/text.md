@@ -84,7 +84,17 @@ islandeses conozcan mucho mejor nuestro país que nosotros el suyo.
 >Y, si me apuras, que el nuestro. Porque no hay más que tener que
 >pelearse con una inmobiliaria en Levante y asistir a un par de
 >reuniones de la comunidad de la urba para que te hagas una idea
->bastante precisa del país y de todo lo que de bueno y malo contiene. 
+>bastante precisa del país y de todo lo que de bueno y malo contiene.
+
+La primera vez que fui a Islandia, en 2006, hicieron falta varios
+saltos desde Granada, pasando por Londres. Hoy en día hay varios
+vuelos diarios desde diferentes aeropuertos, incluyendo, como es
+natural, Alicante y tanto con compañías islandesas como
+españolas.
+
+Casi todos salen o llegan a horas intempestivas. Lo que encontrarás
+cuando llegas a
+[Keflavik, el aeropuerto situado en la antigua base americana](http://www.embassypages.com/missions/embassy5625/)... 
 
 
 
