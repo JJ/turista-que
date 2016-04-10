@@ -58,4 +58,22 @@ Hay diez cosas que posiblemente no sepas sobre Islandia. Igual más, pero vamos 
 
 Islandia es una isla, y una que queda un tanto lejos. Por eso no queda más remedio que acercarse en avión. 
 
-Durante mucho tiempo el único vuelo directo desde España a Reikiavik partía desde Alicante. A los islandeses le gusta Alicante y hay una pequeña comunidad en Torrevieja, quizás no tan pequeña si tienen su [supermercado exclusivo, Overseas Iceland](http://www.mydestination.com/alicante/shopping/181478/iceland-overseas-supermarket)
+Durante mucho tiempo el único vuelo directo desde España a Reikiavik
+partía desde Alicante. A los islandeses le gusta Alicante y hay una
+pequeña comunidad en Torrevieja, quizás no tan pequeña si tienen su
+[supermercado exclusivo, Overseas Iceland](http://www.mydestination.com/alicante/shopping/181478/iceland-overseas-supermarket). No
+se sabe qué fue primero, si el vuelo o la colonia, pero el hecho es
+que
+[ya en el año 2007 había 87 ciudadanos islandeses censados allí](http://elpais.com/diario/2007/07/09/cvalenciana/1184008682_850215.html). Muchos
+menos que irlandeses o lituanos, pero también Islandia es más
+pequeño y 87 ciudadanos es el 0.02% de la población. Como si hubiera
+9000 españoles en algún sitio del planeta, que seguro que los
+hay. Realmente,
+[no es Torrevieja el lugar con más islandeses, sino Orihuela](http://epa.com.es/padron/islandeses-en-alicante-alacant/);
+muchos de los islandeses están repartidos por ciudades de Alicante,
+incluyendo el ínclito Benidorm
+
+>que, no hace falta decirlo, en verano tiene más habitantes que
+>Reikiavik.
+
+
