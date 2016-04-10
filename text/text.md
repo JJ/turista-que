@@ -1,4 +1,4 @@
-#Los turistas que cagaban demasiado y otros mitos islandeses.
+#Los turistas que cagaban demasiado y otras sagas islandesas.
 
 #Diez cosas
 
@@ -31,7 +31,7 @@ Hay diez cosas que posiblemente no sepas sobre Islandia. Igual más, pero vamos 
 * En la capital, Reikiavik, hace fresco,
   [pero no tanto](http://es.climate-data.org/location/764736/). Compáralo
   con el de [Copenhague](http://es.climate-data.org/location/139524/)
-  y fíjate el frío que hace en esa última en invierno. Eso sí, llueve
+  y fíjate en la rasca que hace en esa última en invierno. Eso sí, llueve
   siempre. En un día determinado, cualquiera, al azar, la respuesta a
   "¿Va a llover?" siempre es "sí". 
 
@@ -39,12 +39,12 @@ Hay diez cosas que posiblemente no sepas sobre Islandia. Igual más, pero vamos 
   ventilar todo, sino porque para comprarlo tienes que ir a una [tienda
   específica](http://www.vinbudin.is/), que abre y cierra a horas
   específicas. El botellón espontáneo, una imposibilidad. No sólo por
-  el clima.
+  el clima. Y eso sin empezar a mencionar los precios. Lo único que puedes comprar en supermercados son cervezas de baja graduación, sidras, Shandys y cosas por el estilo.
 
 * Los islandeses no tienen apellidos, sólo nombre. Lo que pasa por
   apellido es simplemente una afirmación sobre de quién es hijo o
   hija, `dottir` o `son`. Ya sé lo que estáis pensando, no, a los
-  bastardos no les ponen ni "Nieve" ni "Ríos" ni nada por el estilo.
+  bastardos no les ponen ni "Nieve" ni "Ríos" ni nada por el estilo. Sería "Nieve" en todo caso, que es de lo que más hay.
 
 * Los islandeses conocen España mucho mejor que los españoles a
   Islandia. El que más y el que menos ha estado en España de
