@@ -57,3 +57,5 @@ Hay diez cosas que posiblemente no sepas sobre Islandia. Igual más, pero vamos 
 ## Llegando a Islandia
 
 Islandia es una isla, y una que queda un tanto lejos. Por eso no queda más remedio que acercarse en avión. 
+
+Durante mucho tiempo el único vuelo directo desde España a Reikiavik partía desde Alicante. A los islandeses le gusta Alicante y hay una pequeña comunidad en Torrevieja, quizás no tan pequeña si tienen su [supermercado exclusivo, Overseas Iceland](http://www.mydestination.com/alicante/shopping/181478/iceland-overseas-supermarket)
