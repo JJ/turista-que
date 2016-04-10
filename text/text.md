@@ -110,7 +110,10 @@ Con una sola planta, desde la salida sales al párking al mismo nivel o
 al autobús, y ahí ya notarás una claridad, u oscuridad, que no tienen
 mucho que ver con la hora en la que has llegado. Aparte de las dos
 horas de diferencia que hay, Islandia, lo habréis notado, está muy
-cerca del círculo polar, a 63 grados norte.
+cerca del círculo polar, a 63 grados norte. Este círculo llega, por
+poco, a Islandia: sólo la
+[isla Grímsey](https://es.wikipedia.org/wiki/Gr%C3%ADmsey) cae dentro
+de él, y por poquito. 
 
 >66º North, un poquitín más arriba y la latitud por la que pasa el
 >círculo polar, le da nombre a una
