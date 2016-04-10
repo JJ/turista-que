@@ -108,7 +108,14 @@ día siguiente.
 
 Con una sola planta, desde la salida sales al párking al mismo nivel o
 al autobús, y ahí ya notarás una claridad, u oscuridad, que no tienen
-mucho que ver con la hora en la que has llegado. 
+mucho que ver con la hora en la que has llegado. Aparte de las dos
+horas de diferencia que hay, Islandia, lo habréis notado, está muy
+cerca del círculo polar, a 63 grados norte.
+
+>66º North, un poquitín más arriba y la latitud por la que pasa el
+>círculo polar, le da nombre a una
+>[excelente, y cara, marca de ropa de abrigo](https://www.66north.com/)
+>auténticamente islandesa. 
 
 
 
