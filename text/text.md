@@ -53,3 +53,7 @@ Hay diez cosas que posiblemente no sepas sobre Islandia. Igual más, pero vamos 
   a y desde España era al aeropuerto de Alicante.
 
 ¿Nos sabemos ya todo esto de memoria? Prosigamos pues.
+
+## Llegando a Islandia
+
+Islandia es una isla, y una que queda un tanto lejos. Por eso no queda más remedio que acercarse en avión. 
