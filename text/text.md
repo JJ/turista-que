@@ -94,7 +94,21 @@ españolas.
 
 Casi todos salen o llegan a horas intempestivas. Lo que encontrarás
 cuando llegas a
-[Keflavik, el aeropuerto situado en la antigua base americana](http://www.embassypages.com/missions/embassy5625/)... 
+[Keflavik, el aeropuerto situado en la antigua base americana, Naval Air Station Keflavik](http://www.embassypages.com/missions/embassy5625/)
+que fue abandonada por el último marino americano
+[el 6 de septiembre de 2006](https://en.wikipedia.org/wiki/Naval_Air_Station_Keflavik),
+unos días antes de que yo llegara por primera vez, es un aeropuerto
+pequeño, coqueto, con una gran tienda de licores, donde si tienes un
+amigo islandés posiblemente tengas que pararte para hacer algún
+encarguito, porque les resulta más barato que las Vinbudin mencionadas
+anteriormente. El aeropuerto es cálido y tiene mucha luz, lo que no
+puede sino estorbar a las muchas personas que lo usan como dormitorio
+entre vuelo que llega a las tantas y vuelo que sale a las tantas del
+día siguiente.
+
+Con una sola planta, desde la salida sales al párking al mismo nivel o
+al autobús, y ahí ya notarás una claridad, u oscuridad, que no tienen
+mucho que ver con la hora en la que has llegado. 
 
 
 
